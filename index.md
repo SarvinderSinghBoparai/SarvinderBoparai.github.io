@@ -1,4 +1,3 @@
-SarvinderBoparai.github.io
------------------------
+SarvinderBoparai.github.io  
 
 Sarvinder Singh Boparai
