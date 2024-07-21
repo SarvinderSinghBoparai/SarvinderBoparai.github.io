@@ -24,7 +24,7 @@ My skills includes:
 
 💼 Microsoft Tools: Well-versed in using Word, Excel, PowerPoint, and Outlook for various tasks
 
-Hobbies/Interest:
+🏏 Hobbies/Interest:
 Getting knowledge new tech related products
 Playing Cricket
 
