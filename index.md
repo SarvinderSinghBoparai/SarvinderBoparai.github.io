@@ -22,10 +22,7 @@ Class XII : 61.8% (Non-medical)
 
 My skills includes:
 
-Team Work
-Microsoft Word & Powerpoint,
-Video Editing
-Adept in learning new things
+💼 Microsoft Tools: Well-versed in using Word, Excel, PowerPoint, and Outlook for various tasks
 
 Hobbies/Interest:
 Getting knowledge new tech related products
