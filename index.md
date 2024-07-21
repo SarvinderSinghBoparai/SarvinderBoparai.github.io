@@ -1,11 +1,11 @@
 # SarvinderBoparai.github.io
 ___
 
-Sarvinder Singh Boparai
+**Sarvinder Singh Boparai**
 
 ___
 
-About me:
+**About me**:
 
 ___
 Hello everyone ,I am Sarvinder Singh Boparai and I am currently pursuing a B Tech in Mechanical Engineering at Guru Nanak Dev Engineering College,Ludhiana.
