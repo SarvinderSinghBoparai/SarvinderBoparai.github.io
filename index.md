@@ -10,6 +10,7 @@ Hello everyone ,I am Sarvinder Singh Boparai and I am currently pursuing a B Tec
 ___
 B-Tech Mechaincal engineering.
 Guru Nanak Dev Engineering college, Ludhiana.
+
 2024 - 2028 (Expected)
 
 Sant Ishar Singh Ji Memorial Public School Karamsar Rara Sahib District(Ludhiana)
