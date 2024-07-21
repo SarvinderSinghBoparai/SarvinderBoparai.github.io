@@ -1,2 +1,2 @@
-# SarvinderBoparai.github.i
+# SarvinderBoparai.github.io
 ___
