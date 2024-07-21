@@ -1,3 +1,3 @@
 # SarvinderBoparai.github.io
 ___
-**Sarvinder Singh Boparai**
+**Sarvinder** **Singh** **Boparai**
